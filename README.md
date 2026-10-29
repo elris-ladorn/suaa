@@ -64,14 +64,11 @@ pinklist: noe - miyu - tinder - hải - chuột
 <img width="2048" height="155" alt="image" src="https://github.com/user-attachments/assets/3e5edc77-7e65-4f0e-a6c1-04a9655d5f23" />
 </p>
 
+
 <p align="center">
-<a href="https://git.io/typing-svg">
-<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=99807C&width=435&lines=put+it+on+me+that's+the+best+part;baby+the+trust%2C+trust+me;i+got+nothing+for+you+other+than+luv"alt="Typing SVG" /></a> 
-</p>
-
-
-<p align="centre">
   - check out blogspot n atabook: ( update soon )
+
+  <p align="center">
   <img width="1854" height="752" alt="image" src="https://github.com/user-attachments/assets/450b033b-ad71-4d92-a303-64d91d15adaf" />
 </p>
 
@@ -106,4 +103,9 @@ pinklist: noe - miyu - tinder - hải - chuột
 
 <p align="center">
 <img width="1810" height="74" alt="image" src="https://github.com/user-attachments/assets/002992a3-90d1-4ab5-9671-7c0e0eb676a3" />
+</p>
+
+<p align="center">
+<a href="https://git.io/typing-svg">
+<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=99807C&width=435&lines=put+it+on+me+that's+the+best+part;baby+the+trust%2C+trust+me;i+got+nothing+for+you+other+than+luv"alt="Typing SVG" /></a> 
 </p>
