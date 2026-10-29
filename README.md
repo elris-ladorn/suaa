@@ -7,3 +7,7 @@
 <a href="https://git.io/typing-svg">
 <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=99807C&width=435&lines=put+it+on+me+that's+the+best+part;baby+the+trust%2C+trust+me;i+got+nothing+for+you+other+than+luv" alt="Typing SVG" /></a>
 </p>
+
+<p align="centre">
+<img width="1854" height="100" alt="image" src="https://github.com/user-attachments/assets/aa3d6481-8d2a-428c-9bbc-0379d19b0d78" />
+</p>
