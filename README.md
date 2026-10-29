@@ -44,6 +44,5 @@
   <img width="2048" height="1036" alt="image" src="https://github.com/user-attachments/assets/b9abeb05-2c1d-4199-b244-b4156fac8613" />
 </p>
 
-<p align="centre">
-  
-call me: ELRIS LADORN ( Eo with close friend ) - i love nicknames, give me some <33
+
+⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀  ⠀⠀⠀⠀⠀  call me: ELRIS LADORN ( Eo with close friend ) - i love nicknames, give me some <33⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀  ⠀⠀⠀⠀⠀  ⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀pinklist :
