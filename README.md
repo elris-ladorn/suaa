@@ -43,3 +43,6 @@
 <img width="1854" height="100" alt="image" src="https://github.com/user-attachments/assets/a8f4a88b-0062-47ce-9f25-b325055d1adf" />
   <img width="2048" height="1036" alt="image" src="https://github.com/user-attachments/assets/b9abeb05-2c1d-4199-b244-b4156fac8613" />
 </p>
+
+<p align="centre">
+call me: ELRIS LADORN ( Eo with close friend ) - i love nicknames, give me some <33
