@@ -57,3 +57,6 @@ pinklist: noe - miyu - tinder - hải - chuột
   </a>
 </p>
 
+<p align="center">
+<img width="2048" height="155" alt="image" src="https://github.com/user-attachments/assets/4753d429-e3e6-4fea-a808-451144b11573" />
+</p>
