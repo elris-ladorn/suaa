@@ -45,7 +45,7 @@
 </p>
 
 
-⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀  ⠀⠀⠀⠀⠀  call me: ELRIS LADORN ( Eo with close friend ) - i love nicknames, give me some <33⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀  ⠀⠀⠀⠀⠀  ⠀  
+⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀  call me: ELRIS LADORN ( Eo with close friend ) - i love nicknames, give me some <3  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀  ⠀⠀⠀⠀⠀  ⠀  
 <p align="center">
 pinklist: noe - miyu - tinder - hải - chuột
 <p align="center">
