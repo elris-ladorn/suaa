@@ -25,4 +25,6 @@
 
 <img width="1854" height="100" alt="image" src="https://github.com/user-attachments/assets/34c6451e-7bb8-4dec-ad30-e7be4e980355" />
 
-> ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  †~~◟ ͜ ◞ ◞ ◞~~   ͜𓏼  ♱ ͜ ◞⠀⠀⠀⠀⠀⠀  ꒰ ͜͝  ͜͝ | ͜͝ ּ𓏼♡֯
+<p align="centre">
+ ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  †~~◟ ͜ ◞ ◞ ◞~~   ͜𓏼  ♱ ͜ ◞⠀⠀⠀⠀⠀⠀  ꒰ ͜͝  ͜͝ | ͜͝ ּ𓏼♡֯⠀⠀⠀
+</p>
