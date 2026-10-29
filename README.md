@@ -84,7 +84,9 @@ pinklist: noe - miyu - tinder - hải - chuột
    - check out ig n tiktok: ( update soon)
   <img width="1854" height="752" alt="image" src="https://github.com/user-attachments/assets/1c76cf1a-a2ca-46b3-8d91-e0daaddd6ebe" />
 </p>
-- đã xây tik và ig nhưng đang lười làm link ạ hihi. ( tình trạng tik: onl và k coi tb, k onl thường xuyên ) - ( tình trạng ig: ít khi đăng nhập )⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀  ⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀  ⠀  - LƯU Ý: cả 2 acc đều là acc clone, acc9 Elr sống lâu ki nhé. và eo tắt onl 24/7 tất cả mxh ( trừ zalo ) , tắt cả rbl nhé
+- đã xây tik và ig nhưng đang lười làm link ạ hihi. ( tình trạng tik: onl và k coi tb, k onl thường xuyên ) - ( tình trạng ig: ít khi đăng nhập )
+
+- LƯU Ý: cả 2 acc đều là acc clone, acc9 Elr sống lâu ki nhé. và eo tắt onl 24/7 tất cả mxh ( trừ zalo ) , tắt cả rbl nhé
 
 <p align="center">
 <img width="2048" height="104" alt="image" src="https://github.com/user-attachments/assets/60f1b596-83ac-4655-af02-cb359e834e2c" />
