@@ -14,10 +14,10 @@
   <img width="1280" height="1280" alt="image" src="https://github.com/user-attachments/assets/9ee1cb7d-eff7-4caf-a548-a64cd5ed6aaa" />
     </td>
     <td align="center">
-    <img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/278ed162-308b-4580-bb8e-bf53abfe2114" /><img width="1280" height="1280" alt="image" src="https://github.com/user-attachments/assets/3b7787bf-fa82-42e7-9896-88ca1cfdb52a" />
+   <img width="1280" height="1280" alt="image" src="https://github.com/user-attachments/assets/3b7787bf-fa82-42e7-9896-88ca1cfdb52a" />
     </td>
     <td align="center">
-    <img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/464aa185-8347-4216-aa49-bc7b561e8da5" />
+    <img width="1280" height="1280" alt="image" src="https://github.com/user-attachments/assets/81de1c03-d1f6-49ca-9774-3da9488e3df8" />
     </td>
   </tr>
 </table>
