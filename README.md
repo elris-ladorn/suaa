@@ -44,7 +44,7 @@
 </p>
 
 
-⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀  call me: ELRIS LADORN ( Eo with close friend ) - i love nicknames, give me some <3  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀  ⠀⠀⠀⠀⠀  ⠀  ⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀  ⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀  I'm Vietnamese. I can speak English ( B1 - B2 . idk acutually ). learning Deutsch ( by myself - still very poor )
+⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀  call me: ELRIS LADORN ( Eo with close friend ) - i love nicknames, give me some <3  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀  ⠀⠀⠀⠀⠀  ⠀  ⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀I'm Vietnamese. I can speak English ( B1 - B2 . idk acutually ). learning Deutsch ( by myself - still very poor )
 <p align="center">
 pinklist: noe - miyu - tinder - hải - chuột
 <p align="center">
