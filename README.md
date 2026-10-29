@@ -44,7 +44,7 @@
 </p>
 
 
-⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀  call me: ELRIS LADORN ( Eo with close friend ) - i love nicknames, give me some <3  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀  ⠀⠀⠀⠀⠀  ⠀  
+⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀  call me: ELRIS LADORN ( Eo with close friend ) - i love nicknames, give me some <3  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀  ⠀⠀⠀⠀⠀  ⠀  ⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀  ⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀  I'm Vietnamese. I can speak English ( B1 - B2 . idk acutually ). learning Deutsch ( by myself - still very poor )
 <p align="center">
 pinklist: noe - miyu - tinder - hải - chuột
 <p align="center">
@@ -71,6 +71,8 @@ pinklist: noe - miyu - tinder - hải - chuột
   <p align="center">
   <img width="1854" height="752" alt="image" src="https://github.com/user-attachments/assets/450b033b-ad71-4d92-a303-64d91d15adaf" />
 </p>
+- kí ata giúp Elr nhé
+
 
 <p align="left>
   <img width="1701" height="1581" alt="image" src="https://github.com/user-attachments/assets/1b32b626-39ce-46a6-b1d7-5421ee6463b4" />
@@ -82,6 +84,7 @@ pinklist: noe - miyu - tinder - hải - chuột
    - check out ig n tiktok: ( update soon)
   <img width="1854" height="752" alt="image" src="https://github.com/user-attachments/assets/1c76cf1a-a2ca-46b3-8d91-e0daaddd6ebe" />
 </p>
+- đã xây tik và ig nhưng đang lười làm link ạ hihi. ( tình trạng tik: onl và k coi tb, k onl thường xuyên ) - ( tình trạng ig: ít khi đăng nhập )⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀  ⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀  ⠀  - LƯU Ý: cả 2 acc đều là acc clone, acc9 Elr sống lâu ki nhé. và eo tắt onl 24/7 tất cả mxh ( trừ zalo ) , tắt cả rbl nhé
 
 <p align="center">
 <img width="2048" height="104" alt="image" src="https://github.com/user-attachments/assets/60f1b596-83ac-4655-af02-cb359e834e2c" />
