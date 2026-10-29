@@ -60,11 +60,13 @@ pinklist: noe - miyu - tinder - hải - chuột
 <img width="2048" height="155" alt="image" src="https://github.com/user-attachments/assets/3e5edc77-7e65-4f0e-a6c1-04a9655d5f23" />
   <a href="https://git.io/typing-svg">
 <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=99807C&width=435&lines=put+it+on+me+that's+the+best+part;baby+the+trust%2C+trust+me;i+got+nothing+for+you+other+than+luv" alt="Typing SVG" /></a>
+  <img width="1854" height="752" alt="image" src="https://github.com/user-attachments/assets/450b033b-ad71-4d92-a303-64d91d15adaf" />
+
 </p>
 
 <p align="center">
   <img width="1961" height="138" alt="image" src="https://github.com/user-attachments/assets/46053fd0-ea8f-472f-af39-6969e8a652f6" />
-
 <img width="2048" height="155" alt="image" src="https://github.com/user-attachments/assets/cd9828c4-bd7f-4b2c-a38f-57bd87f1258e" />
+  <img width="1854" height="752" alt="image" src="https://github.com/user-attachments/assets/1c76cf1a-a2ca-46b3-8d91-e0daaddd6ebe" />
 </p>
 
