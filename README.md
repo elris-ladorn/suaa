@@ -71,10 +71,9 @@ pinklist: noe - miyu - tinder - hải - chuột
 
 
 <p align="centre">
+  - check out blogspot n atabook: ( update soon )
   <img width="1854" height="752" alt="image" src="https://github.com/user-attachments/assets/450b033b-ad71-4d92-a303-64d91d15adaf" />
 </p>
-<p align="centre">
-  - check out blogspot n atabook: ( update soon )
 
 <p align="left>
   <img width="1701" height="1581" alt="image" src="https://github.com/user-attachments/assets/1b32b626-39ce-46a6-b1d7-5421ee6463b4" />
