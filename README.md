@@ -15,8 +15,7 @@
 </table>
 
 <p align="center">
-<a href="https://git.io/typing-svg">
-<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=99807C&width=435&lines=put+it+on+me+that's+the+best+part;baby+the+trust%2C+trust+me;i+got+nothing+for+you+other+than+luv" alt="Typing SVG" /></a>
+  <img width="2048" height="104" alt="image" src="https://github.com/user-attachments/assets/95d1106b-5995-439f-a7bf-252d5269d60c" />
 </p>
 
 <table>
@@ -59,4 +58,6 @@ pinklist: noe - miyu - tinder - hải - chuột
 
 <p align="center">
 <img width="2048" height="155" alt="image" src="https://github.com/user-attachments/assets/4753d429-e3e6-4fea-a808-451144b11573" />
+  <a href="https://git.io/typing-svg">
+<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=99807C&width=435&lines=put+it+on+me+that's+the+best+part;baby+the+trust%2C+trust+me;i+got+nothing+for+you+other+than+luv" alt="Typing SVG" /></a>
 </p>
