@@ -8,7 +8,16 @@
 <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=99807C&width=435&lines=put+it+on+me+that's+the+best+part;baby+the+trust%2C+trust+me;i+got+nothing+for+you+other+than+luv" alt="Typing SVG" /></a>
 </p>
 
-<p align="centre">
-  <img width="1280" height="1280" alt="image" src="https://github.com/user-attachments/assets/7ccaf6bd-f498-45cb-9fa2-e357d912d628" />
-</p>
-
+<table>
+  <tr>
+    <td align="center">
+  <img width="1280" height="1280" alt="image" src="https://github.com/user-attachments/assets/9ee1cb7d-eff7-4caf-a548-a64cd5ed6aaa" />
+    </td>
+    <td align="center">
+    <img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/278ed162-308b-4580-bb8e-bf53abfe2114" /><img width="1280" height="1280" alt="image" src="https://github.com/user-attachments/assets/3b7787bf-fa82-42e7-9896-88ca1cfdb52a" />
+    </td>
+    <td align="center">
+    <img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/464aa185-8347-4216-aa49-bc7b561e8da5" />
+    </td>
+  </tr>
+</table>
